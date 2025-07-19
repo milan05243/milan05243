@@ -1,3 +1,5 @@
+![Banner]("C:\Users\dell\Downloads\ChatGPT Image Jul 19, 2025, 10_47_54 PM.png")
+
 # Hi, I'm Milan Choudhary 👋  
 
 **`AI Enthusiast | Future AI Software Engineer | Building Intelligent Solutions`**
